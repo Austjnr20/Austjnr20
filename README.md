@@ -22,7 +22,8 @@ Check out my repositories for projects and source code.
 
 ### 📫 Connect With Me
 - GitHub: https://github.com/Austjnr20
-- Instagram: https://instagram.com/illegal_logics
+- Instagram: https://instagram.com/@_illegal.logics_
+- Thread: https://thread.com/@_illegal.logics_
 - X: https://x.com/ALubanga95819
 - Facebook: https://facebook.com/Austine Junior
 
